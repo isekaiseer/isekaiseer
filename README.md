@@ -15,7 +15,7 @@ I hope to grow into a full-stack engineer and independent developer known for cr
 
 I am currently a 23-year-old full-stack developer at a leading tech company, based in Hangzhou. My interests center on AI Agents, LLM applications, and practical engineering implementation, and I am especially interested in projects with real-world business value and long-term growth potential. Feel free to reach out to me by email for business cooperation, interesting ideas, or potential collaborations.
 
-📧 **1053030836@qq.com** (Serious inquiries only, please)
+📧 **minittao@163.com** (Serious inquiries only, please)
 
 ---
 
